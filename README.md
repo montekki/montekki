@@ -1,3 +1,3 @@
-I am a software developer from Moscow and I am working on decentralizing stuff.
+I am a software developer originally from Moscow, now residing in Istanbul.
 
 Besides work I enjoy BJJ, Weightlifting and other activities.
