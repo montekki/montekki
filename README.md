@@ -1,4 +1,4 @@
-I am a software developer originally from Moscow, now residing in Istanbul.
+I am a software developer originally from Moscow, now residing in Berlin.
 
 Besides work I enjoy BJJ, Weightlifting and other activities.
 
